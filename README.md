@@ -1,2 +1,0 @@
-# awadeuwu
-awa de uwu
